@@ -7,9 +7,9 @@
 - 👑 The King of CRUD 🤪
 
 - 🎮 Gaming Achievements:  
-• Overwatch — Grandmaster  
-• Valorant — Mythic Rank  
-• Honor of Kings — Yu Ji, Top 100 on China Server (小国服)  
+• Overwatch : GrandMaster  
+• Valorant : Immortal Mythic   
+• Honor of Kings : Yu Ji, Top 100 on China Server (小国服)  
 
 - 📫 How to reach me: 752306557@qq.com
 

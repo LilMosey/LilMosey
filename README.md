@@ -6,7 +6,7 @@
 
 - 👑 The King of CRUD 🤪
 
-- 🎮 Gaming Achievements:
+- 🎮 Gaming Achievements:  
 • Overwatch — Grandmaster  
 • Valorant — Mythic Rank  
 • Honor of Kings — Yuh Ji, Top 100 on China Server (小国服)  

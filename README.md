@@ -9,7 +9,7 @@
 - 🎮 Gaming Achievements:  
 • Overwatch — Grandmaster  
 • Valorant — Mythic Rank  
-• Honor of Kings — Yuh Ji, Top 100 on China Server (小国服)  
+• Honor of Kings — Yu Ji, Top 100 on China Server (小国服)  
 
 - 📫 How to reach me: 752306557@qq.com
 
